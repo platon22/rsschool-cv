@@ -1,1 +1,1 @@
-https://your-github-account.github.io/rsschool-cv/cv
+https://platon22.github.io/rsschool-cv/cv
