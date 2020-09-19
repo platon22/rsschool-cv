@@ -15,4 +15,4 @@
 
 1. **English** : My English level is A2+ 
 
-1. **P.S.** : On weekends, because of walking around Minsk, there is a great opportunity to be in a paddy wagon.
+1. **P.S.** : On weekends, because of walking around **Minsk**, there is a great opportunity to be in a paddy wagon.
